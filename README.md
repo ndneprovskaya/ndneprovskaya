@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @ndneprovskaya
-- 👀 I’m interested in learning coding, Stocks and Deutsch language.
+- 👀 I’m interested in Project and Product Management, Learning coding, Stocks and Deutsch language.
 - 🌱 I’m currently learning iOS and WEB Developing
 - 📫 How to reach me: linkedin.com/in/natalia-dneprovskaya-9526151b
 
